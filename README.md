@@ -1,3 +1,5 @@
 # RamdomNimek
-RANDOM ANIME MENU
-1.
+ANIME INI BAGUS GW PILIH BOY | credit by LionSuzune
+
+# MENU RANDOM ANIME
+loli, waifu, husbu, ppcp, wallpaperanime, wallpaper hd anime, neko, elf, fox dll
