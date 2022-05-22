@@ -2,4 +2,4 @@
 ANIME INI BAGUS GW PILIH BOY | credit by LionSuzune
 
 # MENU RANDOM ANIME
-loli, waifu, husbu, ppcp, wallpaperanime, wallpaper hd anime pc, neko, elf, fox dll
+di sini hanya nama anime aja yg gw tau, kalian pakai aja ini untuk semua aja^^
